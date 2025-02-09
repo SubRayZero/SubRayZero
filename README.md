@@ -2,7 +2,7 @@
 
 I'm Jasmine DRAPERI and I'm based in Grenoble, France.
 
-I am currently training as an Application designer and developer at [Simplon](https://auvergnerhonealpes.simplon.co/grenoble.html) Grenoble. We learn the front and back end. We do the same with Ops Dev.
+I am currently looking for a fixed-term contract before starting a Master's degree in IT.
 
 ## Talk about me 🌺
 I like the training I am currently taking, and I hope to be able to discover many more things! Outside of work, I enjoy playing video games, drawing or hanging out with my friends and family!
